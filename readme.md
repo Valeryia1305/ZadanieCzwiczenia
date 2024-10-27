@@ -1,0 +1,1 @@
+Projekt WSB Merito Gdynia 2024 - Narzedzie wspierajace wytwarzanie oprogramowania
